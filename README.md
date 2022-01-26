@@ -86,7 +86,7 @@ Drashti Fefar (drashtifefar7777@gmail.com)
 <br> 
 Krupali Patel (krupalipatel3013@gmail.com)
 <br>
-Sakshi Shah (20dit090@charusat.edu.in)
+Sakshi Shah (SakshiShah299@gmail.com)
 <!-- <br>
 Swetha Manukonda (smanukonda0@gmail.com)
 <br> -->
